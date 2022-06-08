@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Joaodoograu
 - 👀 aprender 
 - 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 💞️ I QUERO NAMORAR DISPONÍVEL
+- 📫 How to reach me são José dos Pinhais PR
 
 <!---
 Joaodoograu/Joaodoograu is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
